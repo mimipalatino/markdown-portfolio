@@ -1,1 +1,1 @@
-# Welcome to Mimi Palatino's portfolio! 
+# Welcome to Mimi's portfolio! 
